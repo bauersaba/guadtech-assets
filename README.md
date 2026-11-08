@@ -1,0 +1,1 @@
+# guadtech-assets
